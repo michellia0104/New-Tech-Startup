@@ -1,17 +1,24 @@
 # New-Tech-Startup
-Very Rare Opportunities
+Searching for sales reps.
+Currently accepting people in the mobile website creation field. This does not require programming or other webmaster or web builder skills. You do need some above average computer skills. You will be trained on our system where you will seek out customers who need mobile websites created. You will create the website through our platform and then sell them for a 50% commission. Websites you build through us can sell for over $5,000. Huge market since Google change its rules that makes mobile website a must for all website owners.
+Basically you will find customers, build them a website, and then sell it. 
+Duties:
+•	Contact current non mobile friendly website owners. We provide the lead source. 
+•	Build mobile websites and native apps. Even build PC websites.
+•	Unlimited website creation capabilities with us. 
+•	No upfront costs to the customer.
+•	Publish your work from day one with no domain.
+•	Multiple upsell opportunities.
 
-We are an exciting new start up Software Company in the “do it yourself” mobile website creation. We are mobile first. Currently looking for agency owners of at least 10 reps who can take our Platform and use it to sell unlimited do it yourself websites, sell unlimited actual platforms (only ones doing this), white label options. Our websites are fully functional even during the free trial. No customers need to pay until after they built their website and published it. Very unique in this area to. Available in multi languages. 
-The financial rewards are limitless for the correct candidates. To be clear this is a company and not an MLM or Work From Home organization. Set to be a fast growing multi-million dollar company. This is commission performance based, which allows you to make more residual income. 
-Your agency will be given unlimited platforms to use. Only top agencies will get this opportunity. We provide most of the marketing materials. Video ads, video webinars, ad copy. Lead sources. Google has changed the playing field and this is your chance to be ahead of the curve. 
-•	Build responsive active mobile websites/Pc Websites/Native apps
-•	Unlimited websites always free to try as we have our own servers. New clients can publish with us without a domain.
-•	Push Notifications
-•	SMS
-•	Loyalty Cards
-•	Coupons. Many marketing capabilities built in for the consumer.
-•	Built in auto responder
-•	Built around residual income
-•	White Label
-•	Built in auto responder
-•	Affiliate options.
+
+Qualifications:
+1.	Above average computer skills.
+2.	Maintain communication with your managers.
+3.	Previous sales experience.
+4.	Part time and full time.
+5.	Work without supervision.
+
+
+Compensation: Commission based with income potential to exceed 6 figures annually. As we grow so does your pay check with incentives and bonuses. Top sales reps will earn well over 6 figures.
+Apply Now: Car sales, real estate, college student, marketers, insurance sales, programmers, web designers
+
